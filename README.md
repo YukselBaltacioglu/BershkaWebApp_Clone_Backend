@@ -1,0 +1,1 @@
+[e-Commerce-Emre Özkaya_2020510137-Yüksel Baltacıoğlu_2019510019-Mehmet Tunahan Kanpolat_2016510127.pdf](https://github.com/YukselBaltacioglu/BershkaWebApp_Clone_Backend/files/13298961/e-Commerce-Emre.Ozkaya_2020510137-Yuksel.Baltacioglu_2019510019-Mehmet.Tunahan.Kanpolat_2016510127.pdf)
